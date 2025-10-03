@@ -30,5 +30,5 @@ These resources are shared strictly for **educational purposes only**. The owner
 --- 
 🌐 Connect With Me
 If you’re also into cybersecurity, feel free to connect:  
-- 💻 LinkdenIn: [@ymuhammad-ahsanijaz](https://www.linkedin.com/in/muhammad-ahsanijaz/)  
+- 💻 LinkdenIn: [@muhammad-ahsanijaz](https://www.linkedin.com/in/muhammad-ahsanijaz/)  
   
